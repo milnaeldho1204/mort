@@ -1,3 +1,3 @@
 # mort
-hey poda patti
+hey bakka................bakka....
 
